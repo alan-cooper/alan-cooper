@@ -1,4 +1,4 @@
-### Vaa Arunachalam! Nee varuvaa enakku nu theriyum 👋
+### Vaa Arunachalam! Nee varuvaa nu enakku theriyum 👋
 
  - ⚡ Fun fact: I am not in danger, I am the danger.
  - 😎 Sirappana Aaal Naan 😉
